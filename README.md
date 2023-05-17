@@ -1,6 +1,6 @@
 ### Olá, me chamo Jeferson Gomes
 
-#### Sou estudante de ADS e atualmente estou no pimeito semestre. 📚
+#### Sou estudante de ADS e atualmente estou no primeiro semestre. 📚
 
 #### Moro em João Pessoa a aproximadamante um ano! 🏚️
 
