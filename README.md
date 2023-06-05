@@ -6,7 +6,7 @@
 
 #### Adoro programação no qual estou me dedicando. 💻
 
-### Essas linguagens abaixo são as que estou aprendendo atualmente 👇
+### O que estou aprendendo atualmente 👇
 
 
 <div style="display: inline_block"><br>
